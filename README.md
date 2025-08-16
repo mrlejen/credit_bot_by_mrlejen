@@ -4,4 +4,4 @@
 
 **SHARE CODE `MrLejen`, OWNER CODE `MrLejen`**
 
-**All rights reserved `tored developer` : https://discord.gg/dYTk5G6QCY**
+**All rights reserved `tored developer` : https://discord.gg/8s8XBz4RUG**
